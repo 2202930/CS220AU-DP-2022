@@ -35,3 +35,5 @@ How to use this GitHub repository as a template for your submission, including h
 -Write up notes from last week. 
 
 -Write them up in inbox, then condense them and put into permanant folder, and take out from inbox
+
+-Begin research on Existential Risks.
