@@ -25,7 +25,6 @@ How to use this GitHub repository as a template for your submission, including h
 <br>
 
 ## Log
-
 - 2022-10-21 updated to do list.
 - 2022-10-24 updated to do list.
 
@@ -33,6 +32,6 @@ How to use this GitHub repository as a template for your submission, including h
 <br>
 
 ## TODO
--  Condense notes from inbox and put them into permanant folder
-
--Begin research on Existential Risks.
+-  Condense notes from inbox and put them into permanant folder.
+ 
+-  Begin research on Existential Risks.
