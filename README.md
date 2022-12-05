@@ -17,4 +17,4 @@
 <br>
 
 ## TODO
-- Using the information from my private notes write answers to website question in the index.md folder
+- Using the information from my private notes write answers to website questions in the index.md folder
