@@ -3,7 +3,7 @@ DRAFT
 # How has our presence online positively contributed to raising awareness about the Palm Oil campaign? #
 
 Planed Subheadings:
-- What is an existential risk?
+- What is an Existential risk?
 - Why is Palm Oil considered to be an existential risk?
 - What impact does Palm Oil have on the environment and animal habitats?
 - What is the Palm Oil campaign?
