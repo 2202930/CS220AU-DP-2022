@@ -2,7 +2,7 @@ DRAFT
 
 # How has our presence online positively contributed to raising awareness about the Palm Oil campaign? #
 
-###### What is an Existential Risk? ######
+## What is an Existential Risk? ##
 
 An Existential Risk is a risk that has the potential of eliminating all of humanity and its ecosystems.
 
