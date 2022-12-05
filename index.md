@@ -6,7 +6,7 @@ DRAFT
 
 An Existential Risk is a risk that has the potential of eliminating all of humanity and its ecosystems. They can Environmental Risks, Natural Risks, Biotech Risks and Artifical Intelligence Risks. 
 
-Examples of Existential Risks:
+Examples of Existential Risks-
 - Ecosystem Collapse
 - Catastrophic Climate Change
 - Supervolcanos
@@ -14,7 +14,9 @@ Examples of Existential Risks:
 
 ## What is Palm Oil, and why can it be considered an Existential Risk? ##
 
-Palm Oil is high quality ingredient that is used for a number of different reasons. It is an ingredient found in food products, detergents, cosmetics and biofuel.  
+Palm Oil is high quality ingredient that is used for a number of different reasons. It is an ingredient found in food products, detergents, cosmetics and biofuel. Palm Oil is a very productive crop, it offers a greater yield at a lower cost than other vegetable oils. 
+
+The demand for Palm Oil is rapidly increasing, meaning that the Global Production of Palm Oil is also increasing. In order to keep up with this trend, Palm Oil plantations have been spreading across Asis, Africa and Latin America. The expansion of these plantations is proving to be detrimental to Tropical Rainforests which form as critical habitats for a number of endagered species, including the Orangutan, the Pygmy Elephant and Sumatran Rhino. 
 
 
 
