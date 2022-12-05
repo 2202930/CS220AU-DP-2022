@@ -12,13 +12,9 @@
 - 2022-11-16 updated log and to do list.
 - 2022-11-28 created my personal V&R map, and uploaded into permanant notes.
 - 2022-11-28 updated log and to do list.
+- 2022-12-05 created a draft for my website in the index.md file, this included the questions I will be answering and the video links I will be using.
 
 <br>
 
 ## TODO
-- Continue research on Existential risks 
- 
-- Continue to work on research question
-
-- Begin writing up notes on Existential risks
-
+- Using the information from my private notes write answers to website question in the index.md folder
