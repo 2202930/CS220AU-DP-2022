@@ -12,16 +12,9 @@ Examples of Existential Risks:
 - Supervolcanos
 - Asteroid hitting Earth
 
-###### Why is Palm Oil considered to be an Existential Risk? ######
+### What is Palm Oil, and why can it be considered an Existential Risk? ###
 
-
-
-
-
-
-
-
-
+Palm Oil is high quality ingredient that is used for a number of different reasons. It is an ingredient found in food products, detergents, cosmetics and biofuel.  
 
 
 
