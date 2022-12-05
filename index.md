@@ -2,6 +2,25 @@ DRAFT
 
 # How has our presence online positively contributed to raising awareness about the Palm Oil campaign? #
 
+###### What is an Existential Risk? ######
+
+An Existential Risk is a risk that has the potential of eliminating all of humanity and its ecosystems.
+
+
+###### Why is Palm Oil considered to be an Existential Risk? ######
+
+
+
+
+
+
+
+
+
+
+
+
+
 Planed Subheadings:
 - What is an Existential risk?
 - Why is Palm Oil considered to be an existential risk?
