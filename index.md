@@ -1,6 +1,6 @@
 DRAFT
 
-#How has our presence online positively contributed to raising awareness about the Palm Oil campaign?#
+# How has our presence online positively contributed to raising awareness about the Palm Oil campaign? #
 
 Planed Subheadings:
 - What is an existential risk?
