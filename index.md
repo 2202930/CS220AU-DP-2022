@@ -4,7 +4,7 @@ DRAFT
 
 ## What is an Existential Risk? ##
 
-An Existential Risk is a risk that has the potential of eliminating all of humanity and its ecosystems. They can Environmental Risks, Natural Risks, Biotech Risks and Artifical Intelligence Risks. 
+An Existential Risk is a risk that has the potential of eliminating all of humanity and its ecosystems. They can be Environmental Risks, Natural Risks, Biotech Risks and Artifical Intelligence Risks. 
 
 Examples of Existential Risks-
 - Ecosystem Collapse
