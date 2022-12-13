@@ -24,8 +24,6 @@ Therefore, Palm Oil can be considered as an existential risk due to the fact tha
 
 ## What impact does Palm Oil have on the environment and animal habitats?
 
-<iframe width="560" height="315" src="https://www.youtube.com/embed/JdpspllWI2o" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
-
 
 
 
