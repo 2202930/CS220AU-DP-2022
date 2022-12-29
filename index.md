@@ -6,11 +6,9 @@ DRAFT
 
 An Existential Risk is a risk that has the potential of eliminating all of humanity and its ecosystems. They can be Environmental Risks, Natural Risks, Biotech Risks and Artifical Intelligence Risks. 
 
-Examples of Existential Risks-
-- Ecosystem Collapse
-- Catastrophic Climate Change
-- Supervolcanos
-- Asteroid hitting Earth
+<img width="537" alt="Screenshot 2022-12-29 at 13 54 11" src="https://user-images.githubusercontent.com/116093715/209963296-e4ee22f0-f8f6-4548-a9d3-31a1b4ecd93a.png">
+
+
 
 ## What is Palm Oil, and why can it be considered an Existential Risk? ##
 
@@ -20,22 +18,25 @@ The demand for Palm Oil is rapidly increasing, meaning that the Global Productio
 
 Therefore, Palm Oil can be considered as an existential risk due to the fact that it is leading to the collapse of ecosystems.
 
-![gettyimages-1284013504-612x612](https://user-images.githubusercontent.com/116093715/209957206-34191fee-8663-4994-91a7-25163a96b456.jpg)
+![gettyimages-1284013504-612x612](https://user-images.githubusercontent.com/116093715/209957206-34191fee-8663-4994-91a7-25163a96b456.jpg) Orangutan
 
 
-![gettyimages-654867392-612x612](https://user-images.githubusercontent.com/116093715/209957272-5d499f09-bad0-4a78-8fcf-cff9bbd9c79c.jpg)
+![gettyimages-654867392-612x612](https://user-images.githubusercontent.com/116093715/209957272-5d499f09-bad0-4a78-8fcf-cff9bbd9c79c.jpg) Pygmy Elephant
 
 
 ## What impact does Palm Oil have on the environment and animal habitats?
+
+Large areas of tropical forests and other ecosystems with high conservation values have been and are being cleared to make room for Palm Oil plantations. As a result, a number of critical habitats being destroyed for a number of endangered species. In order to make room for these plantations, the forests are burned down, releasing smoke and CO2 into the atmosphere, which then makes room for the crop; this makes it a major source of greenhouse gas emissions in turn contributing to climate change. 
+
+Palm Oil and the expansion of Palm Oil plantations are having a devestating impact on a number of plant and animal habitats, these habitats are being destroyed to make room for these plantations.
+
+
+## What is the Palm Oil campaign? 
 
 
 
 
 Planed Subheadings:
-- What is an Existential risk?
-- Why is Palm Oil considered to be an existential risk?
-- What impact does Palm Oil have on the environment and animal habitats?
-- What is the Palm Oil campaign?
 - What are charities and campaigns doing now?
 - How has social media positively contributed to raising awareness about the campaign?
 
