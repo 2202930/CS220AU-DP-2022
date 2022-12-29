@@ -33,7 +33,11 @@ Palm Oil and the expansion of Palm Oil plantations are having a devestating impa
 
 ## What is the Palm Oil campaign? 
 
+Supporters of the Palm Oil campaign realise that they cannot completely stop brands and companies from using Palm Oil in their products. Instead,they should strive to ensure that they support and instead use Sustainable Palm Oil. 
 
+Chester Zoo suports the Sustainable Palm Oil Campaign, they state that their mission is "preventing extinction, and a big part of that is aiming to be a major force in conserving biodiversity worldwide." As well as supporting the Sustainability of Palm Oil, Chester Zoo "carry out work directly in habitats around the world affected by palm oil production."
+
+WWF raise awareness on the impact that Palm Oil has, its website is incredibly useful in learning about Palm Oil. 
 
 
 Planed Subheadings:
