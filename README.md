@@ -13,6 +13,7 @@
 - 2022-11-28 created my personal V&R map, and uploaded into permanant notes.
 - 2022-11-28 updated log and to do list.
 - 2022-12-05 created a draft for my website in the index.md file, this included the questions I will be answering and the video links I will be using.
+- 2022-12-29 continued to write notes onto my website and included some images.
 
 <br>
 
