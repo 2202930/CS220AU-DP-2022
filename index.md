@@ -20,7 +20,11 @@ The demand for Palm Oil is rapidly increasing, meaning that the Global Productio
 
 Therefore, Palm Oil can be considered as an existential risk due to the fact that it is leading to the collapse of ecosystems.
 
-(Insert picture of orangutan/ pygmy elephant)
+![gettyimages-1284013504-612x612](https://user-images.githubusercontent.com/116093715/209957206-34191fee-8663-4994-91a7-25163a96b456.jpg)
+
+
+![gettyimages-654867392-612x612](https://user-images.githubusercontent.com/116093715/209957272-5d499f09-bad0-4a78-8fcf-cff9bbd9c79c.jpg)
+
 
 ## What impact does Palm Oil have on the environment and animal habitats?
 
