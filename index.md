@@ -1,5 +1,3 @@
-DRAFT
-
 # How has our presence online positively contributed to raising awareness about the Palm Oil campaign? #
 
 ## What is an Existential Risk? ##
@@ -37,7 +35,7 @@ Supporters of the Palm Oil campaign realise that they cannot completely stop bra
 
 Chester Zoo suports the Sustainable Palm Oil Campaign, they state that their mission is "preventing extinction, and a big part of that is aiming to be a major force in conserving biodiversity worldwide." As well as supporting the Sustainability of Palm Oil, Chester Zoo "carry out work directly in habitats around the world affected by palm oil production."
 
-WWF raise awareness on the impact that Palm Oil has, its website is incredibly useful in learning about Palm Oil. 
+WWF raise awareness on the impact that Palm Oil has, their website is incredibly useful in learning about Palm Oil. Their website states that "In 2012, the UK Government recognised that we were part of the Palm Oil problem and could also be part of the solution. They set a commitment for 100% of the Palm Oil used in the UK to be from sustsainable sources that do not harm people or nature." This Government commitment proved to be helpful for the Palm Oil campaign, the WWF website states that in "2019, 70% of the total palm oil imports to the UK were sustainable". 
 
 
 Planed Subheadings:
