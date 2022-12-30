@@ -37,10 +37,19 @@ Chester Zoo suports the Sustainable Palm Oil Campaign, they state that their mis
 
 WWF raise awareness on the impact that Palm Oil has, their website is incredibly useful in learning about Palm Oil. Their website states that "In 2012, the UK Government recognised that we were part of the Palm Oil problem and could also be part of the solution. They set a commitment for 100% of the Palm Oil used in the UK to be from sustsainable sources that do not harm people or nature." This Government commitment proved to be helpful for the Palm Oil campaign, the WWF website states that in "2019, 70% of the total palm oil imports to the UK were sustainable". 
 
+## What are charities and campaigns doing now?
 
-Planed Subheadings:
-- What are charities and campaigns doing now?
-- How has social media positively contributed to raising awareness about the campaign?
+Charities and campaigns are doing a number of different things to raise awareness about the impact that Palm Oil is having on ecosystems and the climate. 
+
+Charities are working towards finding ways of sourcing Palm Oil without destroying and harming ecosystems and the environment. 
+
+
+
+
+
+
+## How has social media positively contributed to raising awareness about the campaign?
+
 
 Possible Video Links:
 - https://www.youtube.com/watch?v=JdpspllWI2o
