@@ -43,6 +43,7 @@ Charities and campaigns are doing a number of different things to raise awarenes
 
 Charities are working towards finding ways of sourcing Palm Oil without destroying and harming ecosystems and the environment. 
 
+WWF "believe that palm oil production does not have to be destructive and can be produced responsibly as part of sustainable 
 
 
 
