@@ -51,6 +51,7 @@ WWF "believe that palm oil production does not have to be destructive and can be
 
 ## How has social media positively contributed to raising awareness about the campaign?
 
+Social media and presence online can be considered as an incredibly useful tool for raising awareness on environmenal campaigns. Harmeet Kaur and Jaya Gera conducted research on the 'Effect of Social Media Connectivity on Success of Crowdfunding Campaigns' and stated that "To make a campaign successful, it is important to publicise and promote it on a large scale over social media." 
 
 Possible Video Links:
 - https://www.youtube.com/watch?v=JdpspllWI2o
