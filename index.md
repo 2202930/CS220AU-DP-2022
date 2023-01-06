@@ -4,7 +4,7 @@
 
 An Existential Risk is a risk that has the potential of eliminating all of humanity and its ecosystems. They can be Environmental Risks, Natural Risks, Biotech Risks and Artifical Intelligence Risks. 
 
-<img width="537" alt="Screenshot 2022-12-29 at 13 54 11" src="https://user-images.githubusercontent.com/116093715/209963296-e4ee22f0-f8f6-4548-a9d3-31a1b4ecd93a.png">
+<img width="1053" alt="Screenshot 2023-01-06 at 22 00 22" src="https://user-images.githubusercontent.com/116093715/211107381-697b4514-6e0d-4e97-b566-caacaebe1dba.png">
 
 
 
