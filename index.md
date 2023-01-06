@@ -51,7 +51,11 @@ WWF "believe that palm oil production does not have to be destructive and can be
 
 ## How has social media positively contributed to raising awareness about the campaign?
 
-Social media and presence online can be considered as an incredibly useful tool for raising awareness on environmenal campaigns. Harmeet Kaur and Jaya Gera conducted research on the 'Effect of Social Media Connectivity on Success of Crowdfunding Campaigns' and stated that "To make a campaign successful, it is important to publicise and promote it on a large scale over social media." 
+Social media and presence online can be considered as an incredibly useful tool for raising awareness on environmenal campaigns. Harmeet Kaur and Jaya Gera conducted research on the 'Effect of Social Media Connectivity on Success of Crowdfunding Campaigns' and stated that "To make a campaign successful, it is important to publicise and promote it on a large scale over social media." Kaur and Gera go on to state that their research study shows "that social interaction and connectivity have a positive impact on the success of a campaign." 
+
+In 2018, supermarket chain * *'Iceland'* * created an advert with the aim to "raise awareness of the critical issue" of palm oil and the impact that Palm Oil plantations were having on ecosystems, in particular the impact it was having on the Orangutans, this advert was known as the * *__'Rang-tan'*__ * Sir Malcom Walker, founder of the Iceland supermarket chain, stated that the advert had received "70 million views and counting online". At the start of 2018, Sir Malcom Walker decided that his supermarket chain would go Palm Oil free, with all own brand products free from Palm Oil, he stated that he was influenced to do this due to his son "Richard's passion around tropical deforestation...". The 'Rang-tan' animation used in the advert originally belonged to a campaign group known as 'Greenpeace'. Sir Malcom Walker had hoped that removing Greenpeace's 
+
+
 
 Possible Video Links:
 - https://www.youtube.com/watch?v=JdpspllWI2o
