@@ -59,6 +59,10 @@ In 2018, supermarket chain *'Iceland'* created an advert with the aim to "raise 
 
 At the start of 2018, Sir Malcom Walker decided that his supermarket chain would go Palm Oil free, with all own brand products free from Palm Oil, he stated that he was influenced to do this due to his son "Richard's passion around tropical deforestation...". The 'Rang-tan' animation used in the advert originally belonged to a campaign group known as 'Greenpeace'. Sir Malcom Walker had hoped that removing Greenpeace's branding from the video would meant that Iceland would have "a good chance of being cleared for broadcast." Unfortunately, this was not the case the advert was considered to be too political to be shown on Television. Despite this, the video was still widely watched, meaning that awareness about the issue of Palm Oil was still being spread. Social media and the internet played a significant part in ensuring the message about the damage that Palm Oil was causing was spread. Online platforms such as Facebook, Instagram, Youtube and Twitter ensured that video was seen and shared. The advert was incredibly effective, Sir Malcom Walker stated that "marketing gurus were falling over themselves to pronounce it the most ‘persuasive’ and ‘effective’ ad of 2018." Despite being banned, "more than 1 million people signed a petition to have it shown on TV", proving that the video had been effective. This proves that social media has positively contributed to raising awareness about the Palm Oil campaign.
 
+(https://youtu.be/JdpspllWI2o)
+
+
+
 
 Possible Video Links:
 - https://www.youtube.com/watch?v=JdpspllWI2o
