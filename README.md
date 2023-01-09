@@ -39,6 +39,7 @@ My V&R Map shows how I used the internet and online platforms to create my websi
 - 2022-12-05 created a draft for my website in the index.md file, this included the questions I will be answering and the video links I will be using.
 - 2022-12-29 continued to write notes onto my website and included some images.
 - 2023-01-06 completed website, created reference document and updated my readme.md file to include a methodology for creating my website.
+- 2023-01-09 self-assessed work, as well as proof reading website informtation.
 
 <br>
 
