@@ -2,7 +2,7 @@
 
 ## Overview
 
-How did I create my website?
+# How did I create my website?
 
 In order to make my website that met the brief of critically reflecting on connections between digital identities and Existential risks, I followed a number of different steps. I made sure to ensure that I referred to all 3 of the themes which included digital identities, existential risks and critical reflection. I have listed the steps followed to reach my final website below:
 
