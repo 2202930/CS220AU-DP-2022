@@ -68,6 +68,7 @@ The Iceland Advert:
 
 https://youtu.be/JdpspllWI2o
 
+
 ## Conclusion ##
 
 In Conclusion, social media and our presence online can be considered to positively contribute to raising awareness about the palm oil campaign. Without social media and an online presence, understanding and learning about the impacts of palm oil would be very difficult. Kaur and Gera's study indicate that  to make a successful campaign, it is "important to publicise and promote it on a large scale over social media" implying that an online presence positively contributes to raising awareness about campaigns. The banned 'Rang-Tan' 'Iceland' advert proves that an online presence can positively contribute to raising awareness the palm oil campaign, as online platforms were incredibly helpful in sharing an informative video that showed the public the impacts that palm oil plantations were causing to Orungatans ecosystems as well as the impact the plantations were having on the environment.
