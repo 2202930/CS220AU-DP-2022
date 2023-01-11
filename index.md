@@ -1,5 +1,7 @@
 # How has our presence online positively contributed to raising awareness about the Palm Oil campaign? #
 
+**Keywords**: Existential risk, Palm Oil, Palm Oil campaigns, Climate Change, Ecosystem Collapse, Social Media
+
 This website will give the reader an understanding about existential risks, with particular focus on palm oil. They will learn about the detrimental impacts of palm oil plantations and the impact that palm oil plantations are having on ecosystems and climate change. The reader will come away learning about how presence online has positively contributed to raising awareness about the palm oil campaign, and how social media positvely contributed to supermarket chain 'Iceland's' 2018 palm oil campaign.
 
 ## What is an Existential Risk? ##
