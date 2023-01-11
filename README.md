@@ -40,6 +40,7 @@ My V&R Map shows how I used the internet and online platforms to create my websi
 - 2022-12-29 continued to write notes onto my website and included some images.
 - 2023-01-06 completed website, created reference document and updated my readme.md file to include a methodology for creating my website.
 - 2023-01-09 self-assessed my website, as well as proof reading website informtation to ensure there were no mistakes.
+- 2023-01-11 received feed back from peer-aassessment, made some of these corrections, this included embedding videos.
 
 <br>
 
