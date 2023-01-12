@@ -50,7 +50,7 @@ WWF state that
 
 An informative video showing what we can do to help support the palm oil campaign:
 
-https://www.youtube.com/watch?v=omJ-raz3BkA
+[![Palm Oil](https://img.youtube.com/vi/omJ-raz3BkA/0.jpg)](https://www.youtube.com/watch?v=omJ-raz3BkA "How do we fix the palm oil problem?")
 
 
 ## How has social media positively contributed to raising awareness about the campaign?
