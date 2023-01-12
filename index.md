@@ -70,7 +70,7 @@ Sir Malcom Walker stated that:
 
 The Iceland Advert:
 
-https://youtu.be/JdpspllWI2o
+[![Iceland ](https://img.youtube.com/vi/JdpspllWI2o/0.jpg)](https://www.youtube.com/watch?v=JdpspllWI2o "Iceland’s Banned TV Christmas Advert... Say hello to Rang-tan. #NoPalmOilChristmas")
 
 
 
