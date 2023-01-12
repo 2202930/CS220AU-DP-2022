@@ -8,9 +8,7 @@
 
 An Existential Risk is a risk that has the potential of eliminating all of humanity and its ecosystems. They can be Environmental Risks, Natural Risks, Biotech Risks and Artifical Intelligence Risks. 
 
-
 <img width="1053" alt="Screenshot 2023-01-06 at 22 00 22" src="https://user-images.githubusercontent.com/116093715/211107381-697b4514-6e0d-4e97-b566-caacaebe1dba.png">
-
 
 ## What is Palm Oil, and why can it be considered an Existential Risk? ##
 
@@ -47,7 +45,8 @@ Charities and campaigns are doing a number of different things to raise awarenes
 
 Charities are working towards finding ways of sourcing palm oil without destroying and harming ecosystems and the environment. 
 
-WWF "believe that palm oil production does not have to be destructive and can be produced responsibly as part of sustainable farming".
+WWF state that
+> " we believe that palm oil production does not have to be destructive and can be produced responsibly as part of sustainable farming".
 
 An informative video showing what we can do to help support the palm oil campaign:
 
@@ -64,7 +63,10 @@ The Iceland 2018 Christmas Advert-
 
 In 2018, supermarket chain *'Iceland'* created an advert with the aim to "raise awareness of the critical issue" of palm oil and the impact that Palm Oil plantations were having on ecosystems, in particular the impact it was having on the Orangutans, this advert was known as the *'Rang-tan'*,Sir Malcom Walker, founder of the Iceland supermarket chain, stated that the advert had received "70 million views and counting online".
 
-At the start of 2018, Sir Malcom Walker decided that his supermarket chain would go Palm Oil free, with all own brand products free from palm oil, he stated that he was influenced to do this due to his son "Richard's passion around tropical deforestation...". The 'Rang-tan' animation used in the advert originally belonged to a campaign group known as 'Greenpeace'. Sir Malcom Walker had hoped that removing Greenpeace's branding from the video would meant that Iceland would have "a good chance of being cleared for broadcast." Unfortunately, this was not the case the advert was considered to be too political to be shown on Television. Despite this, the video was still widely watched, meaning that awareness about the issue of Palm Oil was still being spread. Social media and the internet played a significant part in ensuring the message about the damage that Palm Oil was causing was spread. Online platforms such as Facebook, Instagram, Youtube and Twitter ensured that video was seen and shared. The advert was incredibly effective, Sir Malcom Walker stated that "marketing gurus were falling over themselves to pronounce it the most ‘persuasive’ and ‘effective’ ad of 2018." Despite being banned, "more than 1 million people signed a petition to have it shown on TV", proving that the video had been effective. This proves that social media has positively contributed to raising awareness about the palm oil campaign, as it ensured that the video was still shared and awareness was continuing to be raised about the effects that palm oil has on ecosystems and the envrionment.
+At the start of 2018, Sir Malcom Walker decided that his supermarket chain would go Palm Oil free, with all own brand products free from palm oil, he stated that he was influenced to do this due to his son "Richard's passion around tropical deforestation...". The 'Rang-tan' animation used in the advert originally belonged to a campaign group known as 'Greenpeace'. Sir Malcom Walker had hoped that removing Greenpeace's branding from the video would meant that Iceland would have "a good chance of being cleared for broadcast." Unfortunately, this was not the case the advert was considered to be too political to be shown on Television. Despite this, the video was still widely watched, meaning that awareness about the issue of Palm Oil was still being spread. Social media and the internet played a significant part in ensuring the message about the damage that Palm Oil was causing was spread. Online platforms such as Facebook, Instagram, Youtube and Twitter ensured that video was seen and shared. The advert was incredibly effective. Despite being banned "more than 1 million people signed a petition to have it shown on TV", proving that the video had been effective. This proves that social media has positively contributed to raising awareness about the palm oil campaign, as it ensured that the video was still shared and awareness was continuing to be raised about the effects that palm oil has on ecosystems and the envrionment.
+
+Sir Malcom Walker stated that: 
+>"marketing gurus were falling over themselves to pronounce it the most ‘persuasive’ and ‘effective’ ad of 2018".
 
 The Iceland Advert:
 
