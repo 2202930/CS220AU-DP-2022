@@ -18,11 +18,14 @@ The demand for palm oil is rapidly increasing, meaning that the Global Productio
 
 Therefore, palm oil can be considered as an existential risk due to the fact that it is leading to the collapse of ecosystems.
 
-![gettyimages-1284013504-612x612](https://user-images.githubusercontent.com/116093715/209957206-34191fee-8663-4994-91a7-25163a96b456.jpg) Orangutan
+<img width="1053" alt="Screenshot 2023-01-12 at 17 27 41" src="https://user-images.githubusercontent.com/116093715/212137274-aa4b23f7-9528-4b31-969d-74eadcbd7cfa.png"> 
 
+Photo by <a href="https://unsplash.com/@brewbottle?utm_source=unsplash&utm_medium=referral&utm_content=creditCopyText">Bob Brewer</a> on <a href="https://unsplash.com/photos/8_5sEk7Ay18?utm_source=unsplash&utm_medium=referral&utm_content=creditCopyText">Unsplash</a>
+  
+<img width="1053" alt="Screenshot 2023-01-12 at 17 31 49" src="https://user-images.githubusercontent.com/116093715/212138116-0d048a7c-a32a-4863-aa78-9daf17ac8ea5.png">
 
-![gettyimages-654867392-612x612](https://user-images.githubusercontent.com/116093715/209957272-5d499f09-bad0-4a78-8fcf-cff9bbd9c79c.jpg) Pygmy Elephant
-
+Photo by <a href="https://unsplash.com/@joaquinrivero?utm_source=unsplash&utm_medium=referral&utm_content=creditCopyText">Joaquín Rivero</a> on <a href="https://unsplash.com/photos/98o9htjuih0?utm_source=unsplash&utm_medium=referral&utm_content=creditCopyText">Unsplash</a>
+  
 
 ## What impact does Palm Oil have on the environment and animal habitats?
 
